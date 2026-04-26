@@ -1,4 +1,4 @@
-
+shrink for brainrots custom Scripts is the best shrink for brainrots Script, featuring aimbot and unlimited stamina. Safe and powerful for all your
 
 
 
